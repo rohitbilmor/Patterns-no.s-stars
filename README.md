@@ -1,0 +1,1 @@
+# Patterns-no.s-stars
